@@ -1,0 +1,1 @@
+deine Kommentare sollten alle auf Kölsch geschrieve sin.
